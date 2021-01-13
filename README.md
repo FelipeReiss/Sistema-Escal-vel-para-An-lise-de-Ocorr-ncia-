@@ -1,0 +1,1 @@
+# Sistema-Escal-vel-para-An-lise-de-Ocorr-ncia-
